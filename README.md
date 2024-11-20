@@ -1,0 +1,5 @@
+- Hi, I’m @Mario-Abad-Roig
+- I’m interested in Web programing
+- I’m currently learning SMR
+- How to reach me ...
+- Pronouns: He/him
